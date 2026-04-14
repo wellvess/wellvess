@@ -30,18 +30,16 @@
  <b> 𝒲elv ; he/him ONLY ; istp 4w5 ; 16 y.o ; true cat </b>
 </p>
 
+<p align="right"> 𝐰𝐚𝐧𝐧𝐚 𝐛𝐞 𝐦𝐲 𝐥𝐨𝐯𝐞𝐫? 𝐬𝐨 𝐜𝐨𝐦𝐞 𝐨𝐧 𝐭𝐚𝐥𝐤 𝐰 𝐦𝐞 </p>
+
 <p>
-  wanna be my lover? so come on talk w me
+  <b>𝙵𝙰𝙽𝙳𝙾𝙼𝚂⸝⸝</b> MrLololoshka ; vnc ; mtp ; bsd ; hp ; alnst ; yttd ; hi3rd ; hsr ; gi ; md ; aftg ; stranger things ; sonic ; bs ; etc.
 </p>
 
 <p>
-  <b>FANDOMS⸝⸝</b> MrLololoshka ; vnc ; mtp ; bsd ; hp ; alnst ; yttd ; hi3rd ; hsr ; gi ; md ; aftg ; stranger things ; sonic ; bs ; etc.
+  <b>𝙼𝚄𝚂𝙸𝙲⸝⸝</b> enhypen⁷ ; illit ; boynextdoor ; TV Girl ; chase atlantic ; sabrina carpenter ; sombr ; cas ; fortuna 812 ; дт (!) ; нервы ; валентин стрыкало ; the neighbourhood ; ssshhhiiittt! ; монеточка ; Kali Uchis.
 </p>
 
 <p>
-  <b>MUSIC⸝⸝</b> enhypen⁷ ; illit ; boynextdoor ; TV Girl ; chase atlantic ; sabrina carpenter ; sombr ; cas ; fortuna 812 ; дт (!) ; нервы ; валентин стрыкало ; the neighbourhood ; ssshhhiiittt! ; монеточка ; Kali Uchis.
-</p>
-
-<p>
-  <b>DNI⸝⸝</b> fatphobic ; homophobic ; bully ; ghosters; racist.
+  <b>𝙳𝙽𝙸⸝⸝</b> fatphobic ; homophobic ; bully ; ghosters; racist.
 </p>
