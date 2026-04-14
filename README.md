@@ -1,4 +1,5 @@
-<img src="[https://www.image2url.com/r2/default/images/1776167589467-a3f048fe-d917-4f8f-92b8-b468ea7f17f0.jpg](https://1drv.ms/i/c/c9f6781305dc9214/IQB-o6omYnP0QoeqSpDrnxWiAYdt77cFUo3QJLr0-DO9whk?e=EuQIkd)" width="250" align="center" />
+<p align="center">
+  <img src= />
 
 <p align="center">
   <a href="[https://codeforces.com/profile/Glorfindell?csrf_token=bcab48565089a48c886f5cdb2c9a4ff5](https://t.me/wellvess)" target="_blank">
