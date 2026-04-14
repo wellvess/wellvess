@@ -6,13 +6,13 @@
   <a href="https://t.me/yxniisx" target="_blank">
     <img alt="Static Badge" src="https://img.shields.io/badge/telegram-white?style=for-the-badge&logo=Telegram&logoColor=white&color=black">
   </a>
-  <a href="(https://discordapp.com/users/truewioo" target="_blank">
+  <a href="https://discordapp.com/users/truewioo" target="_blank">
    <img alt="Static Badge" src="https://img.shields.io/badge/discord-white?style=for-the-badge&logo=Discord&logoColor=white&color=black">
   </a>
   <a href="https://www.tiktok.com/@wellvessf?_t=8h8t7e7N8Wl&_r=1" target="_blank">
    <img alt="Static Badge" src="https://img.shields.io/badge/TikTok-white?style=for-the-badge&logo=TikTok&logoColor=white&color=black">
   </a>
-  <a href="(https://open.spotify.com/playlist/0HBCv7W7zCZ9N1SBxdw31r?si=LN8Mou5LQMmHkwxteF-CWA)" target="_blank">
+  <a href="https://open.spotify.com/playlist/0HBCv7W7zCZ9N1SBxdw31r?si=LN8Mou5LQMmHkwxteF-CWA)" target="_blank">
     <img alt="Static Badge" src="https://img.shields.io/badge/Spotify-white?style=for-the-badge&logo=Spotify&logoColor=white&color=black">
   </a>
 </p>
