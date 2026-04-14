@@ -27,5 +27,21 @@
 <br/>
 
 <p>
-  првет я не доделал это говно мне лень
+ <b> 𝒲elv ; he/him ONLY ; istp 4w5 ; 16 y.o ; true cat </b>
+</p>
+
+<p>
+  wanna be my lover? so come on talk w me
+</p>
+
+<p>
+  <b>FANDOMS⸝⸝</b> MrLololoshka ; vnc ; mtp ; bsd ; hp ; alnst ; yttd ; hi3rd ; hsr ; gi ; md ; aftg ; stranger things ; sonic ; bs ; etc.
+</p>
+
+<p>
+  <b>MUSIC⸝⸝</b> enhypen⁷ ; illit ; boynextdoor ; TV Girl ; chase atlantic ; sabrina carpenter ; sombr ; cas ; fortuna 812 ; дт (!) ; нервы ; валентин стрыкало ; the neighbourhood ; ssshhhiiittt! ; монеточка ; Kali Uchis.
+</p>
+
+<p>
+  <b>DNI⸝⸝</b> fatphobic ; homophobic ; bully ; ghosters; racist.
 </p>
