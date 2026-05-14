@@ -27,7 +27,7 @@
 <br/>
 
 <p>
- <b> 𝒲elv ; he/him ONLY ; istp 4w5 ; 16 y.o ; true cat </b>
+ <b> 𝒲elv ; he/him ONLY ; istp sp5sx4sp9 ; 16 y.o ; true cat </b>
 </p>
 
 <p align="right"> 𝐰𝐚𝐧𝐧𝐚 𝐛𝐞 𝐦𝐲 𝐥𝐨𝐯𝐞𝐫? 𝐬𝐨 𝐜𝐨𝐦𝐞 𝐨𝐧 𝐭𝐚𝐥𝐤 𝐰 𝐦𝐞 </p>
